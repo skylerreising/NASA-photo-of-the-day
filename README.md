@@ -1,1 +1,0 @@
-# NASA-photo-of-the-day
